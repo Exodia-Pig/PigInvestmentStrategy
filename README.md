@@ -5,4 +5,5 @@
 원래 또 편하게 정보를 밖아 넣을수 있는 수단중 최고가 깃인것 같아서 깃으로 관리한다 히히히.
 
 나의 욕망의 항아리 구경하고싶으면 와서 봐도 좋다.
+
 <img width="392" height="565" alt="image" src="https://github.com/user-attachments/assets/492c8574-1641-4637-bbf6-a951bbed0173" />
